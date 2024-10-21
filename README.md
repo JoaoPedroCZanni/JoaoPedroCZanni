@@ -17,6 +17,6 @@
  
 </div><br>
 
-Estudante de Análise e Desenvolvimento de Sistemas, desde criança Apaixonado por tecnologia. 
+Estudante de Análise e Desenvolvimento de Sistemas, desde criança apaixonado por tecnologia. 
 
 ## Email p/ Contato: curcinozanni@gmail.com
